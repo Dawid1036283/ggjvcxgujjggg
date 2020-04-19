@@ -1,0 +1,2 @@
+# ggjvcxgujjggg
+Blokada aktywacji
